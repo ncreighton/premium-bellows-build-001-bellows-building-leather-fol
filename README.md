@@ -1,0 +1,2 @@
+# premium-bellows-build-001-bellows-building-leather-fol
+Tired of juggling leather scraps, bellows patterns, and workshop notes across a dozen notebooks?  This Notion template centralizes your entire bellows-building and leather fold craft workflow, from material inventory to step-by-step build logs. Never lose a pattern or a measurement again with everything in one organized hub.  ## What's Included  -
